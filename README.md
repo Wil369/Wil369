@@ -23,7 +23,7 @@ Because it's a meaningful, fast-growing field where I can blend my analytical sk
 - Entry-level SOC, compliance, or education-focused security initiatives
 - Language-localized cybersecurity awareness projects
 
-📫 Reach me on [LinkedIn](www.linkedin.com/in/wilso-annulysse-549406114)* or GitHub messaging
+📫 Reach me on [LinkedIn](www.linkedin.com/in/wilso-annulysse-549406114) or GitHub messaging
 
 ⚡ Fun fact: I taught myself to read, paid for my own schooling from a young age, and speak 6+ languages.
 
